@@ -1,1 +1,1 @@
-## Retecca | Real Estate, Technology, Capital
+### Retecca: Real Estate, Technology, Capital
